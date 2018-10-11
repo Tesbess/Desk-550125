@@ -1,0 +1,2 @@
+# Desk-550125
+  I’ve been looking through my sales and on the live map and the locations don’t appear to match up. On my live map it says i’ve made 6 sale in the UAE and 1 in Qatar BUT in my sales it only has 3 sales made in the UAE over the past 30 days. Normally wouldn’t be too fussed but I don’t lose any money to tax from purchases to the UAE so please can you look into this as I may have lost out on earnings on 4 resources. I’ve screenshotted everything I can see in the hope that its helpful!
